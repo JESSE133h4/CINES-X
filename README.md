@@ -1,1 +1,1 @@
-# CINES-X
+# Cine-
